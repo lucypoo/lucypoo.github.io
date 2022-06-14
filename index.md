@@ -57,7 +57,6 @@
 <iframe width="110" height="200" src="https://www.myinstants.com/instant/the-duck-walked-up-to-ask-for-lemonade-75992/embed/" frameborder="0" scrolling="no"></iframe>
 <iframe width="110" height="200" src="https://www.myinstants.com/instant/dame-da-ne-dame-yo-dame-nano-yo-74102/embed/" frameborder="0" scrolling="no"></iframe>
 <iframe width="110" height="200" src="https://www.myinstants.com/instant/snoop-dogg-clean-1862/embed/" frameborder="0" scrolling="no"></iframe>
-<p style="font-family:verdana">swoopy diggity doggity dawg yah man m8 LmAo sus that is so chug juggy m8 doritos 2015 lulullulul wen impostr is sosi bca v420 lulul kaka bing bong sooooos lol that is funny fortnite battle pass, i just poopie bad wor out my bad wor lol robux blox XD LOL XXMayoXDXDLOLXX_m8GAMING geome dahs hay quandale dingle here, i was whacinng sonic 2 pog dreem smp and mu uncle date huan dingle kidnapped me and made me whach among us movie on yubtube omg plzzzz melp mi dream team #1</p>
 
 
 </body>
